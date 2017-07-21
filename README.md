@@ -4,4 +4,5 @@ There was once a large raccoon named Hedge.
 The large raccoon's name was ted.
 There was once a chair with four legs.
 Hedge found the chair while dumpster diving for dinner.
-Chair kindly invented Hedge into his three story igloo.
+Chair kindly invited Hedge into his three story igloo.
+In the igloo chair introduced ted to his friend Fat rat.
